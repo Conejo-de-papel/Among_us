@@ -1,1 +1,1 @@
-# Among_us-
+# Among_us
